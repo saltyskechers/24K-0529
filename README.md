@@ -9,4 +9,4 @@ In my free time, I love to stay active by playing football and video games.
 HOBBIES ARE:
 - FOOTBALL
 -  READING 
- + EXPLORING FOOD POINTS
+- EXPLORING FOOD POINTS
